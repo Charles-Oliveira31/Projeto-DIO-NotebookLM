@@ -117,13 +117,6 @@ A longevidade do Penjing depende da saúde radicular. Um substrato inadequado su
 Substrato e Biologia Radicular
 Deve-se evitar terminantemente a terra de jardim compacta. A mistura ideal é inorgânica, equilibrando retenção hídrica e aeração.
 
-Manutenção: Luz, Rega e Atenção
-Regra de Ouro: Regue quando o solo estiver úmido/quase seco, nunca deixe secar totalmente. Se o solo estiver constantemente molhado, as raízes apodrecerão em menos de 21 dias.
-Rotação e Luz: O Penjing exige luz solar direta. É vital rotacionar a árvore regularmente para garantir que todos os lados recebam luz uniforme, evitando o crescimento unilateral e fraco.
-Misting (Foliar Spraying): Em ambientes secos, a borrifação diária da folhagem é essencial para manter a umidade e deter pragas como o pulgão verde (greenfly).
-Ferramentas Profissionais
-Alicate Côncavo (Alicate Bola): Cria cortes profundos e circulares que permitem uma cicatrização plana, sem calosidades.
-Tesoura Satsuki: De bico longo, permite o acesso a áreas densas sem danificar as ramificações laterais.
 --------------------------------------------------------------------------------
 6. Glossário de Conceitos e Termos Essenciais
 
